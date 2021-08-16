@@ -51,5 +51,9 @@ https://youtube.com/channel/UCGmfv3D0tcKvHp8Tolf6Yqw
 
 https://t.me/termuxalsharabi
 
+# المدونة
+
+https://termuxalsharabi.blogspot.com
+
 
 
